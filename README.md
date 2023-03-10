@@ -1,1 +1,1 @@
-# juriai.github.io
+#thirddwan.github.io
